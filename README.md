@@ -2,7 +2,7 @@
 
 THIS IS NOT MY MOD
 THIS IS AN ARCHIVE FROM Funderscore0                  
-# ALL CREDITS GO TO Funderscore0 AND NOT ME
+ALL CREDITS GO TO Funderscore0 AND NOT ME
 
 THE ORIGINAL GOT DMCA'D OR SOMETHING
 https://github.com/Funderscore0/GorillaTag-K-ID-Fix              
